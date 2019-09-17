@@ -26,3 +26,10 @@ An ideal job in my opinion would be as a investment analyst, the world of financ
 3. obtain an MBA
 4. build a varied trading portfolio
 5. apply to said job
+
+Personal Profile:
+
+According to the Meyers-Briggs test I am a INTJ an (Architect), the learning style test reports me as a visual learner and the big five personality test rated me with a high level of openess and neuroticism.
+
+This has been a bit of an eye opener as Ive never really looked at myself from a clinical perspective nor had a look into my personality. It does reassure certain suspiscions ive had about who I am however. These results wont change anything about how I feel when working with others as I am who I am however I will try to be more mindful about some of the faults associated with be a INTJ while trying to incorporate my visual aides to assist my own learning. When forming a team I feel I should attempt to get more varied people who act on impulse and "doers" rather than planners such as myself as I would tend to over-think various aspects of work.
+
