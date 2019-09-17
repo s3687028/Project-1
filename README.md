@@ -18,3 +18,11 @@ My interest in technology started at a very early age with my nintendo 64 and fr
 Ideal Job: 
 
 https://www.seek.com.au/job/39952535?searchrequesttoken=42b904bc-3bef-4655-8145-505e5ace5e1f&type=standout
+
+An ideal job in my opinion would be as a investment analyst, the world of finance and investments excites me as its a position that requires a great deal of strategy and cunning and to me that is a true contest of intelligence. To be viable for a position such as that Id have to do a buisness course in finacial planning and work with a large amount of security trusts. After being supervised and a few years managing said trusts an analyst position would become viable. Currently im at square one in trying to achieve that end goal, I dont really have any experience or abilities in that field yet. However I am currently in motion to achieve it, the plan is as followed:
+
+1. Graduate with buisness degree
+2. work in a finacial sector for some years preferably at an investment firm
+3. obtain an MBA
+4. build a varied trading portfolio
+5. apply to said job
